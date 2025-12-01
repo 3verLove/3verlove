@@ -1,18 +1,18 @@
-## undead
+## Undead Be Reborn
 
 ˗ˏˋ 𓂃✨ welcome !! ˎˊ˗
 
 ౨ৎ・ demiromantic 𓆩♡𓆪 ┊ any prns (=^ ◡ ^=)
 ૮₍ ˶•⤙•˶ ₎ა hii hii.. feel free to interact anytime !!
-
-★彡 i'm usually busy / gaming / afk  
-but i always come back eventually ★彡
+ 
+ i'm usually busy / gaming / afk  
+but i always come back eventually..
 
 ──────── ⋆ ⋆ ────────
 
 📊 stats + stuff !
 
-![Profile view counter](https://komarev.com/ghpvc/?username=UndeadBeBorn&color=99db71&style=flat-square&label=EternalSlumber)
+![Profile view counter](https://komarev.com/ghpvc/?username=UndeadBeBorn&color=99db71&style=flat-square&label=zombies)
 
 ──────── ⋆ ⋆ ────────
 
