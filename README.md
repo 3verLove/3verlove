@@ -14,10 +14,9 @@ HIIII, my names Rex heh.. feel free to interact anytime !!
 but i'll come back eventually..
 
 ──────── ⋆ ⋆ ────────
+ !
 
-📊 stats + stuff !
-
-![Profile view counter](https://komarev.com/ghpvc/?username=UndeadBeBorn&color=99db71&style=flat-square&label=zombies)
+![Profile view counter](https://komarev.com/ghpvc/?username=UndeadBeBorn&color=99db71&style=flat-square&label=cheries)
 
 ──────── ⋆ ⋆ ────────
 
