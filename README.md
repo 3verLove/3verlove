@@ -3,7 +3,8 @@
 ˗ˏˋ 𓂃✨ welcome !! ˎˊ˗
 
 ౨ৎ・ demiromantic 𓆩♡𓆪 ┊ any prns (=^ ◡ ^=)
-૮₍ ˶•⤙•˶ ₎ა hii hii.. feel free to interact anytime !!
+
+HIIII, my names Rex heh.. feel free to interact anytime !!
  
  i'm usually busy / gaming / afk  
 but i always come back eventually..
