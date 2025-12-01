@@ -10,8 +10,8 @@ HALLOO!! WELCOME..!
 
 HIIII, my names Rex heh.. feel free to interact anytime !!
  
- i'm usually busy / gaming / afk  
-but i always come back eventually..
+ i'm usually busy / afk  
+but i'll come back eventually..
 
 ──────── ⋆ ⋆ ────────
 
