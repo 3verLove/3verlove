@@ -1,8 +1,12 @@
 ## Undead Be Reborn
 
-˗ˏˋ 𓂃✨ welcome !! ˎˊ˗
+HALLOO!! WELCOME..!
 
 ౨ৎ・ demiromantic 𓆩♡𓆪 ┊ any prns (=^ ◡ ^=)
+
+![image0](https://github.com/user-attachments/assets/1c5efbc0-f256-400c-8197-de2401cf851a)
+
+
 
 HIIII, my names Rex heh.. feel free to interact anytime !!
  
