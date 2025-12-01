@@ -16,7 +16,7 @@ but i'll come back eventually..
 ──────── ⋆ ⋆ ────────
  !
 
-![Profile view counter](https://komarev.com/ghpvc/?username=UndeadBeBorn&color=99db71&style=flat-square&label=cheries)
+![Profile view counter](https://komarev.com/ghpvc/?username=UndeadBeBorn&color=cd7777&style=flat-square&label=cheries)
 
 ──────── ⋆ ⋆ ────────
 
