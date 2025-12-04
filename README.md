@@ -1,6 +1,6 @@
 ## Undead Be Reborn
 
-HALLOO!! WELCOME..! sign my tree heh[ tree ](https://colormytree.me/2025/01KBFNAN7VJQVRQ3ZJ8ESBDFFT)
+HALLOO!! WELCOME..! sign my[ tree! 🎄 ](https://colormytree.me/2025/01KBFNAN7VJQVRQ3ZJ8ESBDFFT)
 
 ౨ৎ・ demiromantic 𓆩♡𓆪 ┊ any prns (=^ ◡ ^=)
 
